@@ -1,14 +1,16 @@
 hey!
 
-email me@farzaaaan.com
+email [me@farzaaaan.com](mailto:me@farzaaaan.com)
 
-twitter @farzaaaan
+twitter [@farzaaaan](https://twitter.com/farzaaaan)
 
-instagram @farzaaaan
+instagram [@farzaaaan](https://instagram.com/farzaaaan)
 
-reddit @farzaaaan_c137
+reddit [@farzaaaan_c137](https://reddit.com/u/farzaaaan_c137)
 
-rocket league @farzaaaan_c137
+rocket league [@farzaaaan_c137](https://www.google.com/teapot)
+
+substack [farzaaaan.substack.com](https://farzaaaan.substack.com)
 
 <!---
 Farzaaaan/Farzaaaan is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
