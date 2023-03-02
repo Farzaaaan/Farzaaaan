@@ -1,9 +1,13 @@
 hey!
 
 email me@farzaaaan.com
+
 twitter @farzaaaan
+
 instagram @farzaaaan
+
 reddit @farzaaaan_c137
+
 rocket league @farzaaaan_c137
 
 <!---
