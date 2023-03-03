@@ -4,7 +4,7 @@ email [me@farzaaaan.com](mailto:me@farzaaaan.com)
 
 github [@farzaaaan](https://github.com/farzaaaan/)
 
-spotify [@farzaaaan](https://spotify.com/farzaaaan)
+spotify [@farzaaaan](https://open.spotify.com/user/farzaaaan)
 
 twitter [@farzaaaan](https://twitter.com/farzaaaan)
 
