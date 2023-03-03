@@ -4,6 +4,8 @@ email [me@farzaaaan.com](mailto:me@farzaaaan.com)
 
 github [@farzaaaan](https://github.com/farzaaaan/)
 
+spotify [@farzaaaan](https://spotify.com/farzaaaan)
+
 twitter [@farzaaaan](https://twitter.com/farzaaaan)
 
 instagram [@farzaaaan](https://instagram.com/farzaaaan)
