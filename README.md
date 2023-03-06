@@ -20,6 +20,8 @@ discord [farzaaaan_c137#7778](https://discordapp.com/users/farzaaaan_c137#7778)
 
 substack [farzaaaan.substack.com](https://farzaaaan.substack.com)
 
+linkedin [Farzan Mirheydari](https://www.linkedin.com/in/farzanmirheydari)
+
 <!---
 Farzaaaan/Farzaaaan is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
