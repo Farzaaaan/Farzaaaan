@@ -10,7 +10,7 @@ twitter [@farzaaaan](https://twitter.com/farzaaaan)
 
 rocket league [@farzaaaan_c137](https://www.google.com/teapot)
 
-discord [farzaaaan_c137#7778](https://discordapp.com/users/farzaaaan_c137#7778)
+discord [farzaaaan_c137#7778](https://discordapp.com/users/farzaaaan)
 
 substack [farzaaaan.substack.com](https://farzaaaan.substack.com)
 
