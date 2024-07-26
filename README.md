@@ -8,7 +8,7 @@ twitter [@farzaaaan](https://twitter.com/farzaaaan)
 
 rocket league [@farzaaaan_c137](https://www.google.com/teapot)
 
-linkedin [Farzan Mirheydari](https://www.linkedin.com/in/farzanmirheydari)
+
 
 <!---
 Farzaaaan/Farzaaaan is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
